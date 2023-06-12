@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Image Processing**
 
-- 📫 How to reach me **ishitaagarwal1812@gmail.com**
+- 📫 You can reach me through **ishitaagarwal1812@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
